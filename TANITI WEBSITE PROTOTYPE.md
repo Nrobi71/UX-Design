@@ -1,0 +1,6 @@
+![Taniti Prototype-1](https://github.com/Nrobi71/UX-Design/assets/96146103/79f5344d-8d11-4a6c-ba12-bba0329b44a9)
+![Taniti Prototype-6](https://github.com/Nrobi71/UX-Design/assets/96146103/47a7741d-6c1d-41ed-bcb6-dde0ab1c6c97)
+![Taniti Prototype-5](https://github.com/Nrobi71/UX-Design/assets/96146103/204b7a3a-8722-42f2-8af6-2d394e732815)
+![Taniti Prototype-4](https://github.com/Nrobi71/UX-Design/assets/96146103/1afb5704-511e-4618-8ea6-ef862c0c15ff)
+![Taniti Prototype-3](https://github.com/Nrobi71/UX-Design/assets/96146103/ab2c26d0-2e58-4084-9626-ab3c7269ec4f)
+![Taniti Prototype-2](https://github.com/Nrobi71/UX-Design/assets/96146103/1acad14c-11f4-4c2c-aed2-77fa0a2a1886)
