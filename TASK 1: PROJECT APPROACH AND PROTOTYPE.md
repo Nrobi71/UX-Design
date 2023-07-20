@@ -1,0 +1,6 @@
+![TASK 1 PROJECT APPROACH AND PROTOTYPE-5](https://github.com/Nrobi71/UX-Design/assets/96146103/37bdf2e5-082a-4270-bdf9-827cdfd5c9e0)
+![TASK 1 PROJECT APPROACH AND PROTOTYPE-4](https://github.com/Nrobi71/UX-Design/assets/96146103/f05e8879-9271-4625-84ea-7ec2cbc3cb88)
+![TASK 1 PROJECT APPROACH AND PROTOTYPE-3](https://github.com/Nrobi71/UX-Design/assets/96146103/db73bd5a-ff75-47c3-9588-acf6353328fb)
+![TASK 1 PROJECT APPROACH AND PROTOTYPE-2](https://github.com/Nrobi71/UX-Design/assets/96146103/9fb96d21-5bb4-49cb-a6e5-435650f2a286)
+![TASK 1 PROJECT APPROACH AND PROTOTYPE-1](https://github.com/Nrobi71/UX-Design/assets/96146103/2d2e9659-9b2a-4088-940a-e2b68f860b1c)
+![TASK 1 PROJECT APPROACH AND PROTOTYPE-6](https://github.com/Nrobi71/UX-Design/assets/96146103/9968b317-b983-44fd-9397-e900e3b5b9bc)
